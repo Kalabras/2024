@@ -1,1 +1,1 @@
-IndabaX2024 Submissions
+Submissions
